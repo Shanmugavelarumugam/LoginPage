@@ -46,3 +46,10 @@ Excited to apply these skills to future projects! 💪
 ![Screenshot 2024-07-18 001851](https://github.com/user-attachments/assets/724f8150-8c82-4462-bd96-bb207c8c8f0d)
 
 ![Screenshot 2024-07-18 001920](https://github.com/user-attachments/assets/35f7aca3-e5ba-4298-87c3-1b835bce6ce1)
+
+![Screenshot 2024-07-18 015439](https://github.com/user-attachments/assets/c7a5e5e4-4045-4542-9477-e91135a30a6e)
+
+![Screenshot 2024-07-18 015512](https://github.com/user-attachments/assets/1ecfbb1c-6528-422c-8d7f-f6048c891b9e)
+
+![Screenshot 2024-07-18 015636](https://github.com/user-attachments/assets/8130a88a-390e-48d8-8627-003ac5a3aa8d)
+
